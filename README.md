@@ -43,3 +43,15 @@ Developed by [Shivam Singh]
 
 ![image alt](https://github.com/Shivam-singh011/OLA-DATA-ANALYSIS/blob/af2d59144d5c3518a66cd5e65c6f3aa000d6223a/Screenshot%202025-09-11%20010319.png)
 
+![image alt](https://github.com/Shivam-singh011/OLA-DATA-ANALYSIS/blob/af2d59144d5c3518a66cd5e65c6f3aa000d6223a/Screenshot%202025-09-11%20005603.png)
+
+
+![image alt](https://github.com/Shivam-singh011/OLA-DATA-ANALYSIS/blob/af2d59144d5c3518a66cd5e65c6f3aa000d6223a/Screenshot%202025-09-11%20005615.png)
+
+
+![image alt](https://github.com/Shivam-singh011/OLA-DATA-ANALYSIS/blob/af2d59144d5c3518a66cd5e65c6f3aa000d6223a/Screenshot%202025-09-11%20005549.png)
+
+
+![image alt](https://github.com/Shivam-singh011/OLA-DATA-ANALYSIS/blob/af2d59144d5c3518a66cd5e65c6f3aa000d6223a/Screenshot%202025-09-11%20005645.png )
+
+
